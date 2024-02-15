@@ -1,4 +1,4 @@
-## Welcome to Beyond Super Tomcat!
+## Welcome to Beyond Super King Tomcat!
 
 ### What Is It?
 
